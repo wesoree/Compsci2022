@@ -1,0 +1,1 @@
+The projects for people help with users who need constant reminders and is for class purposes only
